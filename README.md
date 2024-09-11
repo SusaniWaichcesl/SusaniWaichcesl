@@ -24,4 +24,4 @@
 
 </div><br/>
 
-Apaixonada por tecnologia e educação.
+✨
